@@ -1,1 +1,1 @@
-CPSC - 223p @CSUF with Shawn Graham
+CPSC - 223P @CSUF with Shawn Graham
